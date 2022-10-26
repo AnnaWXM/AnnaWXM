@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AnnaWXM
+- 👀 I’m interested in languages, traveling, and different cultures. My mother tongue is Chinese. I know Cantonese and English, speak a little Finnish and Japanese, also studying Swedish and Spanish.
+- 🌱 I’m currently learning software engering at TAMK. Quite enjoy it.
+- 📫 My email: xiaomininfi@gmail.com
+- ❄️ Hope you enjoy the coming winter!
